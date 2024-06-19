@@ -19,6 +19,6 @@ Timely completion with no risk to your device's functionality.
 Unlock the full capabilities of your Android device today! Inbox me now and let's get started.
 
 # NB: Join our telegram channel for more latest update  
-[Channel link] (https://t.me/bitcoin_flashing)
-[Chat Admin] (https://t.me/coathox)
+[Channel link](https://t.me/bitcoin_flashing)
+[Chat Admin](https://t.me/coathox)
 
