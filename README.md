@@ -20,5 +20,6 @@ Unlock the full capabilities of your Android device today! Inbox me now and let'
 
 # NB: Join our telegram channel for more latest update  
 [Channel link](https://t.me/bitcoin_flashing)
+
 [Chat Admin](https://t.me/coathox)
 
